@@ -5,7 +5,7 @@ collaborator—if you ask and aren't a jerk. This list includes founders, CEOs, 
 
 ### Colorado
 
-* Kim Jordan of [New Belgium Brewing Company](http://www.newbelgium.com/) - *Co-Owner, CEO , President*
+* Kim Jordan of [New Belgium Brewing Company](http://www.newbelgium.com/) - *Co-Owner, CEO, President*
 
 ### Idaho
 
